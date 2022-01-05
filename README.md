@@ -1,4 +1,4 @@
-### Hi there, I am Lucia
+### Hi, I am Lucia
 
 Argentinian based in Berlin, Germany
 
