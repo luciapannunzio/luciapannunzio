@@ -1,6 +1,6 @@
-### Hi, I am Lucia
+### Hey, I am Lucia
 
-Argentinian based in Berlin, Germany
+Argentinian based in Berlin.
 
 Currently learning Web Development online at DCI 👩‍🎓
 
