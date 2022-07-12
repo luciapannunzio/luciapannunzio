@@ -2,7 +2,7 @@
 
 Argentinian based in Berlin.
 
-Currently learning Web Development at DCI 👩‍🎓
+Currently learning Web Development at DCI
 
-📩 You can reach me out luciapannunzio@gmail.com
+You can reach me out luciapannunzio@gmail.com 📩 
 
